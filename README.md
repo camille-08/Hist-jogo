@@ -1,1 +1,1 @@
-# Jogo-Fonte-da-Intelig-ncia
+# Jogo-Fonte-da-Inteligência
